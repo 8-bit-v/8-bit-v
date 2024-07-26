@@ -1,3 +1,3 @@
 ## travando🎮
 
-![](https://tenor.com/pt-BR/view/duck-waddle-gif-12573743802001671415)
+![](https://tenor.com/pt-BR/view/duck-dancing-duck-walk-away-gif-21526535)
